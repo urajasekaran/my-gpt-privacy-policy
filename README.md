@@ -1,1 +1,0 @@
-# my-gpt-privacy-policy
